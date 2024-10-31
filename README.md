@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **gyanponnappa@gmail.com**
 
-- ⚡ Fun fact **I am a National Level Rifle Shooter with AIR 10 in Youth category.**
+- ⚡ Fun fact **I am a National Level Rifle Shooter with an All India Rank of 10 in Youth category.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
